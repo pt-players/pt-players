@@ -1,16 +1,23 @@
-## Hi there 👋
+<p align="center"> ${\textsf{\color{#ffffff}LAST UPDATED: April 17th 2026}}$
+  <br>
+<p align="center"><img  src="https://komarev.com/ghpvc/?username=pt-players&label=ponytowners&color=be6933">
+<p align="center"> ${\textsf{\color{#ffffff}Hey PonyTowners! Here we have the TOP PonyTown players! Ranging from being well-known, having pretty skins, awesome githubs, and more!}}$
+  <br>
+<p align="center"> <sup> ${\textsf{\color{#ffffff}note that this was merely made for entertainment, and will be updated in our free time.}}$ </sup>
+ </sub>
 
-<!--
-**pt-players/pt-players** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[request here](https://titletown.straw.page/)
+ 
+<p align="center"> <sup> ${\textsf{\color{#ffffff}if there is any other title you want to give somebody, lmk in your message on the strawpage.}}$ </sup>
+ </sub>
+  <br>
+  <br>
+  
 
-Here are some ideas to get you started:
+WELL-KNOWN PLAYERS:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+PRETTY SKINS:
+
+COOL GITHUBS:
+
+OTHER:
