@@ -23,5 +23,5 @@ PRETTY PONIES:
 OTHER / REQUEST SECTION ON STRAW
 
 
-<p align="center">note that we will not add anyone that is problematic to this list, we do not condone any negative behaviour. problematic / negative behaviour includes but is not limited to: Harassment, Drama, Problematic Fandoms or Views, Supporting problematic creators, Copying of any kind, and Negative Behaviour. petty drama will be ignored, if it isn't serious.
+<p align="center">note that we will not add anyone that is problematic to this list, we do not condone any negative behaviour. problematic / negative behaviour includes but is not limited to: Harassment, Drama, Problematic Fandoms, Supporting problematic creators, Copying of any kind, and Negative Behaviour. petty drama will be ignored, if it isn't serious.
 <p align="center">we will remove someone off this list once there are multiple complaints, but be sure to add your github/social when requesting to remove someone, so we know that it isn't just one person.
