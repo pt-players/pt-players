@@ -14,7 +14,7 @@
   <br>
   
 
-WELL-KNOWN PLAYERS:
+WELL-KNOWN PLAYERS: [tirgery123](https://github.com/tirgery123) [Bigguykoi](https://github.com/Bigguykoi) [IHASAFACE-LULZ](https://github.com/IHASAFACE-LULZ) [emariyaoi](https://github.com/emariyaoi)
 
 PRETTY PONIES:
 
