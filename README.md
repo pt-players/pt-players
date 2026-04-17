@@ -21,3 +21,7 @@ PRETTY SKINS:
 COOL GITHUBS:
 
 OTHER:
+
+
+<p align="center">Note that we will not add anyone that is problematic to this list. This is purely for entertainment purposes and we do not condone any negative behaviour. Problematic/Negative behaviour includes but is not limited to: Harassment, Drama, Problematic Fandoms / Problematic Views, Supporting problematic creators, Copying of any kind, Or Negative Behaviour. Petty drama will be ignored, if it isn't serious.
+<p align="center">We will remove someone off this list once there are multiple complaints, but be sure to add your github/social when requesting to remove someone, so we know that it isn't just one person.
