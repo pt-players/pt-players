@@ -6,7 +6,7 @@
 <p align="center"> <sup> ${\textsf{\color{#ffffff}note that this was merely made for entertainment, and will be updated in our free time.}}$ </sup>
  </sub>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[request here](https://titletown.straw.page/)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[request here](https://titletown.straw.page/)
  
 <p align="center"> <sup> ${\textsf{\color{#ffffff}if there is any other title you want to give somebody, lmk in your message on the strawpage.}}$ </sup>
  </sub>
