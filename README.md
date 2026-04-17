@@ -16,9 +16,11 @@
 
 WELL-KNOWN PLAYERS: [tirgery123](https://github.com/tirgery123) [Bigguykoi](https://github.com/Bigguykoi) [IHASAFACE-LULZ](https://github.com/IHASAFACE-LULZ) [emariyaoi](https://github.com/emariyaoi)
 
+COOL PLAYERS: [clownpierces](https://github.com/clownpierces) [akchouu](https://github.com/akchouu)
+
 PRETTY PONIES:
 
-OTHER:
+OTHER / REQUEST SECTION ON STRAW
 
 
 <p align="center">note that we will not add anyone that is problematic to this list, we do not condone any negative behaviour. problematic / negative behaviour includes but is not limited to: Harassment, Drama, Problematic Fandoms / Problematic Views, Supporting problematic creators, Copying of any kind, Or Negative Behaviour. petty drama will be ignored, if it isn't serious.
