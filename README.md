@@ -1,7 +1,7 @@
 <p align="center"> ${\textsf{\color{#ffffff}LAST UPDATED: April 17th 2026}}$
   <br>
 <p align="center"><img  src="https://komarev.com/ghpvc/?username=pt-players&label=ponytowners&color=be6933">
-<p align="center"> hey ponytowners, Here we have the TOP ponytown players. Ranging from being well-known, having pretty skins, and more!
+<p align="center"> hey ponytowners, here we have the TOP ponytown players. ranging from being well-known, having pretty skins, and more!
   <br>
 <p align="center"> <sup> ${\textsf{\color{#ffffff}note that this was merely made for entertainment, and will be updated in our free time.}}$ </sup>
  </sub>
