@@ -16,7 +16,7 @@
 
 WELL-KNOWN PLAYERS: [tirgery123](https://github.com/tirgery123) [Bigguykoi](https://github.com/Bigguykoi) [IHASAFACE-LULZ](https://github.com/IHASAFACE-LULZ) [emariyaoi](https://github.com/emariyaoi) [yvoisen](https://github.com/yvoisen) [timaeusTT](https://github.com/timaeusTT) [uItdirk](https://github.com/uItdirk)
 
-COOL PLAYERS: [clownpierces](https://github.com/clownpierces) [akchouu](https://github.com/akchouu) [pwretty](https://github.com/pwretty) [chemlqb](https://github.com/chemlqb)
+COOL PLAYERS: [clownpierces](https://github.com/clownpierces) [akchouu](https://github.com/akchouu) [pwretty](https://github.com/pwretty)
 
 PRETTY PONIES: [PUREFATAL](https://github.com/PUREFATAL) [kingofalejandro](https://github.com/kingofalejandro) [W1lloww](https://github.com/W1lloww) [5POKE](https://github.com/5POKE) [yurilover8786](https://github.com/yurilover8786)
 
