@@ -9,6 +9,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[request here](https://ponytownplayers.straw.page/)
  
 <p align="center"> <sup> ${\textsf{\color{#ffffff}if there is any other category / title you want to give somebody that isn't listed below, lmk in your message on the strawpage.}}$ </sup>
+<p align="center"> <sup> ${\textsf{\color{#ffffff}this list is mainly safe server 1 central / bakery.}}$ </sup>
  </sub>
   <br>
   <br>
