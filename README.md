@@ -16,9 +16,9 @@
 
 WELL-KNOWN PLAYERS: [tirgery123](https://github.com/tirgery123) [Bigguykoi](https://github.com/Bigguykoi) [IHASAFACE-LULZ](https://github.com/IHASAFACE-LULZ) [emariyaoi](https://github.com/emariyaoi) [yvoisen](https://github.com/yvoisen) [timaeusTT](https://github.com/timaeusTT) [uItdirk](https://github.com/uItdirk)
 
-COOL PLAYERS: [clownpierces](https://github.com/clownpierces) [akchouu](https://github.com/akchouu) [pwretty](https://github.com/pwretty)
+COOL PLAYERS: [clownpierces](https://github.com/clownpierces) [akchouu](https://github.com/akchouu) [pwretty](https://github.com/pwretty) [Ghost-Bakery](https://github.com/Ghost-Bakery)
 
-PRETTY PONIES: [PUREFATAL](https://github.com/PUREFATAL) [kingofalejandro](https://github.com/kingofalejandro) [W1lloww](https://github.com/W1lloww) [5POKE](https://github.com/5POKE) [yurilover8786](https://github.com/yurilover8786)
+PRETTY PONIES: [PUREFATAL](https://github.com/PUREFATAL) [kingofalejandro](https://github.com/kingofalejandro) [W1lloww](https://github.com/W1lloww) [5POKE](https://github.com/5POKE) [yurilover8786](https://github.com/yurilover8786) [nameles-boy](https://github.com/nameless-boy) [dollholic](https://github.com/dollholic)
 
 OTHER / REQUEST SECTION ON STRAW
 
