@@ -1,4 +1,4 @@
-<p align="center"> ${\textsf{\color{#ffffff}LAST UPDATED: April 18th 2026}}$
+<p align="center"> ${\textsf{\color{#ffffff}LAST UPDATED: April 19th 2026}}$
   <br>
 <p align="center"><img  src="https://komarev.com/ghpvc/?username=pt-players&label=ponytowners&color=be6933">
 <p align="center"> hey ponytowners, here we have the TOP ponytown players. ranging from being well-known, having pretty skins, and more!
@@ -17,7 +17,7 @@
 
 WELL-KNOWN PLAYERS: [tirgery123](https://github.com/tirgery123) [Bigguykoi](https://github.com/Bigguykoi) [IHASAFACE-LULZ](https://github.com/IHASAFACE-LULZ) [emariyaoi](https://github.com/emariyaoi) [yvoisen](https://github.com/yvoisen) [timaeusTT](https://github.com/timaeusTT) [uItdirk](https://github.com/uItdirk)
 
-COOL PLAYERS: [clownpierces](https://github.com/clownpierces) [akchouu](https://github.com/akchouu) [pwretty](https://github.com/pwretty) [Ghost-Bakery](https://github.com/Ghost-Bakery) [cajolent](https://github.com/cajolent)
+COOL PLAYERS: [clownpierces](https://github.com/clownpierces) [akchouu](https://github.com/akchouu) [pwretty](https://github.com/pwretty) [chemlqb](https://github.com/chemlqb) [Ghost-Bakery](https://github.com/Ghost-Bakery) [cajolent](https://github.com/cajolent) [sorbetflakes](https://github.com/sorbetflakes)
 
 PRETTY PONIES: [PUREFATAL](https://github.com/PUREFATAL) [kingofalejandro](https://github.com/kingofalejandro) [W1lloww](https://github.com/W1lloww) [5POKE](https://github.com/5POKE) [yurilover8786](https://github.com/yurilover8786) [nameless-boy](https://github.com/nameless-boy) [dollholic](https://github.com/dollholic) [piehiker](https://github.com/piehiker) [housepanther](https://github.com/housepanther) [sokizsp4ceship](https://github.com/sokizsp4ceship) [6ullets](https://github.com/6ullets) [VlXXEN](https://github.com/VlXXEN) [KANDYGUTZ](https://github.com/KANDYGUTZ)
 
