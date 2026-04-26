@@ -6,8 +6,7 @@
 <p align="center"> <sup> ${\textsf{\color{#ffffff}note that this was merely made for entertainment, and will be updated in our free time.}}$ </sup>
   </sub>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[request here](https://ponytownplayers.straw.page/) <br>
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ[send a message here](https://ptplayers.atabook.org/)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[request here](https://ponytownplayers.straw.page/)
  
 <p align="center"> <sup> ${\textsf{\color{#ffffff}add your reasoning for wanting to add somebody, so it's easier to put them in to categories. please note that all requests won't be guranteed.}}$ </sup>
 <p align="center"> <sup> ${\textsf{\color{#ffffff}if someone u requested is not added, it's either they go against our rules, u didn't add a category to put them in, or we couldn't find their user.}}$ </sup>
