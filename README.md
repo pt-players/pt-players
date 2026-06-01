@@ -25,7 +25,7 @@ PRETTY PONIES: [purefatal](https://github.com/PUREFATAL) [kingofalejandro](https
 
 TOP 'C+H'ERS: [kittydummy](https://github.com/kittydummy) [KA0RUSURFING](https://github.com/KA0RUSURFING) [viimsey](https://github.com/viimsey) [franklydear](https://github.com/franklydear) [obsessedgojo](https://github.com/obsessedgojo)
 
-PRETTY GITHUBS: [Masochisticc](https://github.com/Masochisticc) [yuriclown](https://github.com/yuriclown) [faded-radiance](https://github.com/faded-radiance) [Ashersashs](https://github.com/Ashersashs) [R0CKETLAUNCHER](https://github/com/R0CKETLAUNCHER) [allhailthekingbaby](https://github.com/allhailthekingbaby) [violentdistrict](https://github.com/violentdistrict) [shurilong](https://github.com/shurilong) [RETROSLOP](https://github.com/RETROSLOP) [DollsMassacre](https://github.com/DollsMassacre) [pawnresearch](https://github.com/pawnresearch)
+PRETTY GITHUBS: [Masochisticc](https://github.com/Masochisticc) [yuriclown](https://github.com/yuriclown) [faded-radiance](https://github.com/faded-radiance) [Ashersashs](https://github.com/Ashersashs) [R0CKETLAUNCHER](https://github/com/R0CKETLAUNCHER) [allhailthekingbaby](https://github.com/allhailthekingbaby) [violentdistrict](https://github.com/violentdistrict) [RETROSLOP](https://github.com/RETROSLOP) [shurilong](https://github.com/shurilong) [DollsMassacre](https://github.com/DollsMassacre) [pawnresearch](https://github.com/pawnresearch)
 
 <br>
 
