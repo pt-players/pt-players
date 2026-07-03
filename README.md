@@ -30,7 +30,7 @@ PRETTY GITHUBS: [yuriclown](https://github.com/yuriclown) [faded-radiance](https
 <br>
 
 <p align="center">note that we will not add anyone that is problematic to this list, we do not condone any negative behaviour. problematic / negative behaviour includes but is not limited to: Harassment, Drama, Problematic Fandoms, Supporting problematic creators, Copying (of any kind), and Negative Behaviour.
-  <p align="center"> <sup> ${\textsf{\color{#ffffff}What we consider problematic fandoms based on facts & media: TCOAAL, FORSAKEN, HAZBIN HOTEL/HELLUVA BOSS, THE FREAK CIRCUS, DREAM SMP, TADC. Anyone in these fandoms will not be added.}}$ </sup>
+  <p align="center"> <sup> ${\textsf{\color{#ffffff}What we consider problematic fandoms based on facts and media: TCOAAL, FORSAKEN, HAZBIN HOTEL/HELLUVA BOSS, THE FREAK CIRCUS, DREAM SMP, TADC. Anyone in these fandoms will not be added.}}$ </sup>
  </sub>
 <p align="center">we will remove someone off this list once there are multiple complaints or enough proof, but be sure to ADD YOUR GITHUB / SOCIAL when requesting to remove someone, otherwise it will be denied, so we know that it isn't just one person.
 <p align="center">PLEASE TELL US IF SOMEONE ON THIS LIST IS PROBLEMATIC.
