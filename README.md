@@ -1,4 +1,4 @@
-<p align="center"> ${\textsf{\color{#ffffff}LAST UPDATED: July 3rd 2026}}$
+<p align="center"> ${\textsf{\color{#ffffff}LAST UPDATED: July 7th 2026}}$
   <br>
 <p align="center"><img  src="https://komarev.com/ghpvc/?username=pt-players&label=ponytowners&color=be6933">
 <p align="center"> hey ponytowners, listed here are the TOP players. ranging from being well-known, being a top player of the game, having pretty skins, etcetera!
